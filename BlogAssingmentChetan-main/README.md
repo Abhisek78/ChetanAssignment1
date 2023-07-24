@@ -1,1 +1,1 @@
-Abhishek Choudhary Blog Assignment Assined By Chetan.
+Abhishek Choudhary Blog Assignment Assigned By Chetan.
